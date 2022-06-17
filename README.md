@@ -1,3 +1,3 @@
-Alnanda Jelek tapi jelekan jeki           (2100018666)
+Alnanda Kusuma          (2100018421)
 Muhammad Zacky Assidiqy (2100018426)
 Reza Sefiyanti          (2100018429)
