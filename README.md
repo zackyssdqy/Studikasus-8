@@ -1,3 +1,3 @@
-Alnanda Kusuma          (2100018421)
+Alnanda Jelek           (2100018666)
 Muhammad Zacky Assidiqy (2100018426)
-Reza Jelek              (987398738973)
+Reza Sefiyanti          (2100018429)
